@@ -9,7 +9,7 @@ I work on quirky things that people don't usually work on
 - Hobbies: Messing around with computers, embedded devices, etc
 - Reach Me Through The Linked Email or Discord (@cubical__)
   
-![](https://media.discordapp.net/attachments/1412862335701487780/1449359045877301350/Screenshot_20251202_171159_YouTube.jpg?ex=6ac386cc&is=6ac2354c&hm=be4f5040cc7656b20e9017bac3ce38193f3cce7018cfc3fe1b697fb89b5858fa&=&format=webp)
+![](https://imgflip.com/i/b3dunp)
 
 <!--
 **ImAtomiskk/ImAtomiskk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
